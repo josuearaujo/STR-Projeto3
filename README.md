@@ -1,0 +1,1 @@
+# STR-Projeto3
